@@ -2,7 +2,7 @@
 <div align="center">
 </div>
 <div align="center">
-  	<b>👉 <a href="t.me/freepremiumcoursse">join telegram channel</a> 👈</b>
+  	<b>👉 <a href="https://t.me/freepremiumcoursse">join telegram channel</a> 👈</b>
 </div>
 
 ## 🗃 Contents
