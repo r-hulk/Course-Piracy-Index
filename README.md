@@ -2,7 +2,7 @@
 <div align="center">
 </div>
 <div align="center">
-  	<b>👉 <a href="https://github.com/ItIsMeCall911/Course-Piracy-Index/pulls">Feel Free To Contribute</a> 👈</b>
+  	<b>👉 <a href="https://t.me/freepremiumcoursse">join telegram channel</a> 👈</b>
 </div>
 
 ## 🗃 Contents
